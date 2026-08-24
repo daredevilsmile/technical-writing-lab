@@ -1,5 +1,4 @@
 
-
 Exercise A — User Manual Procedure
 
 EXERCISE A
